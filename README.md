@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Muddyf0x
+- 👀 I’m interested in python but i want to learn more languages 
+- 🌱 I’m currently learning python
+- 📫 you can reach me on discord @muddyfox#2156
